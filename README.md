@@ -92,7 +92,9 @@
 
 📧 **Email:** praptikulkarni25@gmail.com
 
-💼 **LinkedIn:** *(Add your LinkedIn profile URL here)*
+💼 **LinkedIn:www.linkedin.com/in/prapti-kulkarni
+
+
 
 ---
 
