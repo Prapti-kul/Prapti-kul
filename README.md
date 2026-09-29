@@ -92,7 +92,7 @@
 
 📧 **Email:** praptikulkarni25@gmail.com
 
-💼 **LinkedIn:www.linkedin.com/in/prapti-kulkarni
+💼 **LinkedIn:**www.linkedin.com/in/prapti-kulkarni
 
 
 
